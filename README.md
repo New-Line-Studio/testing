@@ -7,5 +7,5 @@ https://myalt2334.com/others/wolfeinstein_3d/index.html
 Doom:
 https://myalt2334.com/others/DOOM/index.html
 
-Doom (QR):
+Doom (QR (Slow)):
 https://myalt2334.com
